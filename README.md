@@ -36,7 +36,7 @@
 
 ## 📫 Contato
 
-📩 **Email:** rodrigo.pastorini@example.com  
+📩 **Email:** rodrigo.pastorfelis@gmail.com
 🔗 [LinkedIn](https://www.linkedin.com/in/rodrigo-pastorini)  
 🌐 [Portfólio (caso tenha)](https://seusite.com)
 
